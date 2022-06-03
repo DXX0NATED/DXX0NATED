@@ -7,4 +7,4 @@
 - 💬 Ask me about me.
 - 📫 How to reach me: OverStimulated#7348
 - 😄 Pronouns: He/Him
-- ⚡ Main Account: [...](https://github.com/MaiSakuraGoBRR)
+- ⚡ Main Account: https://github.com/MaiSakuraGoBRR
